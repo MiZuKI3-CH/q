@@ -1,6 +1,6 @@
 # MIZUKI3
 -if i hide/block which i do sometimes is most likely if you are being rude or mean dni if you are
-12 and under
+11 and under
 -If i infriend you which i mostly dont do the most likely reason is if im clearing my friends list
 and you havent been online for 200+ days or there or personal reasons and i made a decision sorry:(
 -I go afk randomly and go offtab easily if you see me not talking as much im offtab afk so whisper
